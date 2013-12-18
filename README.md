@@ -13,10 +13,6 @@ orientation, disability, physical appearance, body size, race, or
 religion. We do not tolerate harassment of people at our events or
 space in any form.
 
-Sexual language and imagery should be only be used for positive
-purposes in accordance with best practices advocated by professional
-sex educators (if you’re not sure what those are, don’t do it).
-
 Harassment includes offensive verbal comments related to gender,
 gender identity and expression, sexual orientation, disability,
 physical appearance, body size, race, religion, sexual images in
