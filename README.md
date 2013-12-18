@@ -13,9 +13,9 @@ orientation, disability, physical appearance, body size, race, or
 religion. We do not tolerate harassment of people at our events or
 space in any form.
 
-Sexual language and imagery should be only be used for positive
-purposes in accordance with best practices advocated by professional
-sex educators (if you’re not sure what those are, don’t do it).
+Users of Noisebridge should not be forced to experience sexual or sexualised language or imagery, so such language or imagery should be avoided at Noisebridge. This includes decorations & artwork; events & presentations; and public conversations. Private conversations of a graphically sexual nature should include only voluntary participants, and not disturb others.
+
+There may be events at Noisebridge with a sexual focus or theme; these events or presentations should be clearly labeled so that those who do not wish to experience this sort of content may easily avoid them. It is the responsibility of those managing such an event to ensure that nobody is surprised by their event’s content. Other events should be free of this content.
 
 Harassment includes offensive verbal comments related to gender,
 gender identity and expression, sexual orientation, disability,
