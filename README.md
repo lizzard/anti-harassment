@@ -21,6 +21,20 @@ photography or recording, sustained disruption of talks or other
 events, inappropriate physical contact, and unwelcome sexual
 attention.
 
+Users of Noisebridge should not be forced to experience sexual or 
+sexualised language or imagery, so such language or imagery should be 
+avoided at Noisebridge. This includes decorations & artwork; events & 
+presentations; and public conversations. Private conversations of a 
+graphically sexual nature should include only voluntary participants, 
+and not disturb others.
+
+There may be events at Noisebridge with a sexual focus or theme; these 
+events or presentations should be clearly labeled so that those who do 
+not wish to experience this sort of content may easily avoid them. It 
+is the responsibility of those managing such an event to ensure that 
+nobody is surprised by their event’s content. Other events should be 
+free of this content.
+
 People asked to stop any harassing behavior are expected to comply
 immediately.
 
